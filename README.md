@@ -13,7 +13,7 @@
 ‣ Smart IoT-AI integrations
 ‣ Open-source DevOps tools
 
-📫 Let's connect: vivek01ops@gmail.com
+📫 Let's connect: chaudharivivek.512@gmail.com
 
 😄 Pronouns: He/Him
 
